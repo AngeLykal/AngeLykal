@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AngeLykal
 - 👀 I’m interested in everithing else
-- 🌱 I’m currently learning about Silmarillion
+- 🌱 I’m currently learning about Beren & Lúthien
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me ... IDK
 
